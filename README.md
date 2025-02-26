@@ -1,1 +1,1 @@
-precti me precti me precti me precti me precti me precti me precti me precti me precti me precti me precti me precti me precti me precti me precti me precti me precti me precti me precti me precti me precti me precti me precti me precti me precti me precti me precti me precti me precti me precti me precti me precti me precti me precti me precti me precti me precti me precti me precti me precti me precti me precti me precti me 
+Kdo chce, hledá způsob. Kdo nechce, hledá důvod.
