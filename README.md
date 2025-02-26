@@ -1,1 +1,1 @@
-Kdo chce, hledá způsob. Kdo nechce, hledá důvod.
+"Kdo chce, hledá způsob. Kdo nechce, hledá důvod."
